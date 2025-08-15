@@ -16,7 +16,7 @@
 
 ## 📫 Let's Connect
 - **LinkedIn:** [Prabhat Chitade](https://www.linkedin.com/in/prabhat-chitade-71615b206/)  
-- **X (Twitter):** [@ChitadePrabhat](https://x.com/ChitadePrabhat)  
+- **X (Twitter):** [@ChitadePrabhat](https://x.com/ChitadePrabhat)  (Sharing my Work in Public )
 - **Email:** prabhatchitade@gmail.com  
 
 ---
